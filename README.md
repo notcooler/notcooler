@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notcooler
+- 👀 I’m interested in blob
+- 🌱 I’m currently learning blob
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me discork
