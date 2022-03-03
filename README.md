@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @notcooler
-- 👀 I’m interested in blob
-- 🌱 I’m currently learning blob
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me discork
+i make games, edit games, play games, have plans to work at hypixel!
+Staff/dev at http://discord.gg/bwl. 
+Currenlty trying to make money with nfts.
